@@ -2,7 +2,7 @@
 
 <p>The <strong>Game H APK</strong> is a captivating mobile application that immerses players in the life of a school girl, blending realistic simulation gameplay with horror elements. From navigating daily routines to unraveling chilling mysteries, this app offers a unique and thrilling experience. Here&rsquo;s everything you need to know about Game H.</p>
 
-<h2><a href="https://bom.so/W3mbtF" target="_new">Download Game Now</a></h2>
+<h2><a href="https://bom.so/W3mbtF" target="_new">Download Game Now</a>🍀🍀🍀🍀🍀</h2>
 
 <hr />
 <h2><strong>Overview of Game H</strong></h2>
